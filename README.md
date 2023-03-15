@@ -15,3 +15,7 @@ sfg
 
 
 truy
+
+
+
+wkodkqw;kdp[qwl[pd]]
